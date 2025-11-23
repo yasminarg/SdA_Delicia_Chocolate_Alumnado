@@ -1,0 +1,2 @@
+About
+La SdA se desarrolla en 6 sesiones de 55–60 minutos para 2.º FPB del módulo de Procesos básicos de producción culinaria. Combina trabajo práctico en cocina con tareas digitales (fotos, vídeo e infografía), promoviendo un aprendizaje progresivo, competencial y cercano al ámbito profesional.
